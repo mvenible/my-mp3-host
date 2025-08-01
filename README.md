@@ -1,1 +1,1 @@
-This are songs pulled from Flatlyne Studios playlist. All right reserved to Flatlyne Studios.
+These are songs pulled from Flatlyne Studios' playlist. All rights reserved to Flatlyne Studios.
